@@ -1,2 +1,2 @@
-# aka
-Ganda lang
+#chèska
+こんにちは！！
